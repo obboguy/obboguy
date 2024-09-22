@@ -1,1 +1,2 @@
-- lindo 18y
+- amo peitudas de cabelo curto
+- ![eu-escolho-cristo-todo-dia-i-choose-christ-everyday](https://github.com/user-attachments/assets/ea62897e-ec81-4d27-aecd-3ceef8eddb0a)
